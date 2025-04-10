@@ -2,7 +2,7 @@
 
 **`Business Intelligence & Desenvolvedor FullStack`**
 
-Fundador e Diretor Executivo da [AODEV SOLUTIONS](https://aodev.solutions/), trabalhando na área da tecnologia oficialmente desde os 14 anos. Com uma paixão por desafios e foco constante em soluções tecnológicas, o posto de lider surge de forma natural em qualquer equipe em que estou inserido. Ao longo da minha trajetória, sempre que uma tarefa é imposta, acabo assumindo o papel de líder, guiado pela análise detalhada e um grande senso critico para com as demandas e pela busca contínua por melhorias. Tenho a capacidade de motivar e inspirar minha equipe, assumindo a responsabilidade de conduzir os projetos sob minha direção de forma estratégica, garantindo resultados de alto impacto e evolução constante.
+Co-Fundador e Diretor Executivo da [AODEV SOLUTIONS](https://aodev.solutions/), trabalhando na área da tecnologia oficialmente desde os 14 anos. Com uma paixão por desafios e foco constante em soluções tecnológicas, o posto de lider surge de forma natural em qualquer equipe em que estou inserido. Ao longo da minha trajetória, sempre que uma tarefa é imposta, acabo assumindo o papel de líder, guiado pela análise detalhada e um grande senso critico para com as demandas e pela busca contínua por melhorias. Tenho a capacidade de motivar e inspirar minha equipe, assumindo a responsabilidade de conduzir os projetos sob minha direção de forma estratégica, garantindo resultados de alto impacto e evolução constante.
 
 <p align="left">
     <a href="https://www.linkedin.com/in/gabriel-deivid/">
