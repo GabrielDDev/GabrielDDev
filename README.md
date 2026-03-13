@@ -2,7 +2,7 @@
 
 **Business Intelligence & Desenvolvedor FullStack**
 
-Co-Fundador e Diretor Executivo da **AODEV SOLUTIONS**, trabalhando na área da tecnologia oficialmente desde os 14 anos. Com uma paixão por desafios e foco constante em soluções tecnológicas, o posto de líder surge de forma natural em qualquer equipe em que estou inserido. Ao longo da minha trajetória, sempre que uma tarefa é imposta, acabo assumindo o papel de líder, guiado pela análise detalhada e um grande senso crítico para com as demandas e pela busca contínua por melhorias. Tenho a capacidade de motivar e inspirar minha equipe, assumindo a responsabilidade de conduzir os projetos sob minha direção de forma estratégica, garantindo resultados de alto impacto e evolução constante.
+Co-fundador e Diretor Executivo da AODEV Solutions, com uma imersão no mundo da tecnologia que começou aos 14 anos. Ao longo dessa jornada, aprendi que o verdadeiro impacto nunca é construído sozinho. Minha atuação evoluiu naturalmente para a de um facilitador: gosto de analisar cenários complexos, definir a arquitetura das soluções e orquestrar os talentos da equipe. Mais do que centralizar o controle, meu foco é dar clareza, motivar as pessoas ao meu redor e remover obstáculos para que, juntos, possamos entregar produtos de alta excelência e evolução constante.
 
 ---
 
